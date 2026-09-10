@@ -1,4 +1,4 @@
-## Hi there 👋
+![png](https://i.postimg.cc/kMc19X34/Khong-Co-Tieu-De1007-20260910152028.png) 
 
 <!--
 **puppkonos/puppkonos** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
