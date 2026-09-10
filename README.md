@@ -1,3 +1,11 @@
+<p align="center">
+<a href="https://brookeartzz.atabook.org/">atab</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+<a href="https://guns.lol/bbambiie">guns</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+<a
+href="https://www.instagram.com/bambihrs.ev/">ins</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+</p>
+<p align="center">
+
 ![png](https://i.postimg.cc/kMc19X34/Khong-Co-Tieu-De1007-20260910152028.png) 
 
 <!--
