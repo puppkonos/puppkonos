@@ -4,7 +4,7 @@
 <a
 href="https://moneyholic.straw.page">straw</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 <a
-href="https://zyo.lol/keodollie">zyo</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+href="https://eboy.asia/keodollie">eboy</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 <a
 <p align="center">
 
