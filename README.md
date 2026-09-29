@@ -1,26 +1,3 @@
 <p align="center">
-<a href="https://brookeartzz.atabook.org/">atab</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
-<a href="https://guns.lol/bbambiie">guns</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
-<a
-href="https://moneyholic.straw.page">straw</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
-<a
-href="https://zyo.lol/keodollie">zyo</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
-<a
-<p align="center">
 
-![png](https://i.postimg.cc/kMc19X34/Khong-Co-Tieu-De1007-20260910152028.png) 
-
-<!--
-**puppkonos/puppkonos** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![png](https://i.postimg.cc/QdNsyGhW/Khong-Co-Tieu-De1058-20260929212244.png) 
