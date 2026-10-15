@@ -15,3 +15,4 @@ href="https://zyo.lol/1kittysean">zyo2</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
 ![png](https://i.postimg.cc/MHzH3Zkj/Khong-Co-Tieu-De1109-20261016032651.png)
 
+![png](https://i.postimg.cc/8cypyhmN/Khong-Co-Tieu-De1110-20261016032715.png)
